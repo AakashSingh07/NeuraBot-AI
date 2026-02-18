@@ -229,7 +229,7 @@ It showcases:
 **Let’s connect 👇**
 
 - GitHub: https://github.com/AakashSingh07  
-- LinkedIn: *(Add your LinkedIn here — highly recommended)*
+- LinkedIn: https://www.linkedin.com/in/aakashkumarsingh007
 
 ---
 
